@@ -1,2 +1,2 @@
-# About-jason-ortega
+# About Jason Ortega
 a repository about me
