@@ -19,3 +19,5 @@ I play [coolmath](https://www.coolmathgames.com/) whenever i get bored at school
 * Track and field
 # Hobbies
 Some things i like to do on my own time is to play a lot of video games and play basketball at the ymca. I usually do both of these every single day after i get home from football practice. Sometimes I sell shoes for some extra money, but not often. 
+# Clothing 
+I strickly only wear nike, polo and addidas clothes because i think they look so good. I have about 15 pairs of nike shoes, and i take good care of all of them. Every year on my birthday i go to the mall and i go shopping for shoes 
