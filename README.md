@@ -17,3 +17,5 @@ I play [coolmath](https://www.coolmathgames.com/) whenever i get bored at school
 * Math
 * Basketball
 * Track and field
+# Hobbies
+Some things i like to do on my own time is to play a lot of video games and play basketball at the ymca. I usually do both of these every single day after i get home from football practice. Sometimes I sell shoes for some extra money, but not often. 
