@@ -12,7 +12,7 @@ In my main immediate family, I have two brothers. One older and one younger. My 
 # My favorite websites:
 
 I play [coolmath](https://www.coolmathgames.com/) whenever i get bored at school and I watch [Cnn](https://www.cnn.com/) news to watch up to date with everday events
-# Skils
+# Skills
 * Football
 * Math
 * Basketball
